@@ -1,2 +1,2 @@
 # UNIVERSITAS-BUNGKARNO-BlackHAT
-Di perbunakan untuk hal yang positif
+Di pergunakan untuk hal yang positif
